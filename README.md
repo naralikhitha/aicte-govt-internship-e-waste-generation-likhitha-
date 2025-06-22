@@ -1,0 +1,1 @@
+# aicte-govt-internship-e-waste-generation-likhitha-
